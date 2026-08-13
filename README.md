@@ -369,7 +369,7 @@ https://youtube.com/shorts/1MxKGMEFFR4?feature=share<br>
 -->
 
 <br><br><br>
-<h2><span class="yellow">2026Aug12、河川敷公園のブルーベリーから、ベルモール散策してワンちゃん達まででした<br>Thank you for reading this far.</span></h2>
+<h2><span class="yellow">2026Aug13、河川敷公園のブルーベリーから、ベルモール散策してワンちゃん達まででした<br>Thank you for reading this far.</span></h2>
 <!--
 <br><br><br><br><br>
 <h2><span class="yellow">
